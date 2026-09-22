@@ -6,4 +6,3 @@ Politecnico di Torino
 
 albertovalzgris at gmail dot com  
 alberto dot valzgris at polito dot it  
-tweets @albertovalzgris  
